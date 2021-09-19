@@ -1,4 +1,4 @@
-- 👋 Hi there, I’m Andile - aka [andile-sek]
+👋 Hi there, I’m Andile - aka [andile-sek]
 
 <br />
 
